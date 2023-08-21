@@ -1,1 +1,1 @@
-# kikagaku-career-teams-of-service
+# kikagaku-career-terms-of-service
